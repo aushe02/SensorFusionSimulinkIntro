@@ -23,6 +23,8 @@
 
 ## [Video 2](https://www.youtube.com/watch?v=0rlvvYgmTvI&list=PL8z3JLwN_PhGPR0FMGy1xcl_kja2HBIQV&index=2)
 
-## Video 3
+## [Video 3](https://www.youtube.com/watch?v=hN8dL55rP5I&t=0s)
 
-## Video 4
+## [Video 4](https://www.youtube.com/watch?v=hJG08iWlres&t=0s)
+
+## [Video 5](https://www.youtube.com/watch?v=IIt1LHIHYc4&t=0s)
